@@ -1,7 +1,6 @@
 Just a noob.
 [dont click this](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
